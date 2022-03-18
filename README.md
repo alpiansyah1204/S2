@@ -1,1 +1,1 @@
-# S2
+# awas plagiat gan. semangat
